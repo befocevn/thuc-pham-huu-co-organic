@@ -3,7 +3,7 @@ CÔNG TY TNHH XUẤT NHẬP KHẨU VÀ THƯƠNG MẠI BBK
 Nhà nhập khẩu và phân phối độc quyền các sản phẩm thực phẩm hữu cơ organic, siêu thực phẩm hữu cơ hàng đầu tại Việt Nam
 
 BB&K được thành lập năm 2019 với mục đích nhập khẩu và phân phối các sản phẩm hữu cơ cao cấp. Chúng tôi tự tin dẫn đầu phát triển dòng sản phẩm siêu thực phẩm hữu cơ tại Việt Nam. Để mang tới những sản phẩm hữu cơ tốt nhất tới tay người Việt, chúng tôi luôn cẩn trọng và kĩ lượng trong việc lựa chọn hợp tác với những nhà sản xuất và phân phối lớn và có uy tín cao trên thế giới.
-
+<br>
 **Sứ mệnh**
 BB&K luôn phát triển cùng sứ mệnh là mang những sản phẩm hữu cơ có chất lượng cao từ khắp thế giới về với người Việt Nam. Khách hàng của chúng tôi chỉ cần ngồi ở nhà và tận hưởng những sản phẩm hữu cơ tốt nhất thế giới. Bên cạnh đó, BB&K nỗ lực góp phần lan tỏa lối sống hữu cơ, lối sống xanh, lành mạnh và thân thiện với môi trường tới người tiêu dùng Việt Nam  nhầm nâng cao chất lượng cuộc sống cũng như bảo vệ môi trường sống của chúng ta.
 **Định hướng**
