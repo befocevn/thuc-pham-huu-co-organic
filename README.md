@@ -30,6 +30,7 @@ LIÊN HỆ: CÔNG TY TNHH XUẤT NHẬP KHẨU VÀ THƯƠNG MẠI BBK
 Địa chỉ trụ sở chính: Số nhà 2, Ngõ 175 Tam Trinh, Phường Mai Động, Quận Hoàng Mai, Thành phố Hà Nội, Việt Nam
 Số điện thoại: 0339991477 /0868999485
 Email: ngoctu.luu@bbk.vn
+<br>
 Giấy chứng nhận đăng ký kinh doanh số 0108642429 do phòng Đăng ký kinh doanh – Sở kế hoạch và đầu tư thành phố Hà Nội cấp lần đầu ngày 12/03/2019
 <br>
 </br>
@@ -43,3 +44,8 @@ Văn phòng Hồ Chí Minh: Số 425/8 Nguyễn Đình Chiểu, phường 5, Qu�
 Điện thoại: 0356388859/ 0388886674
 Email: ngoctu.luu@bbk.vn
 Website: [bbk.vn](https://bbk.vn/)
+
+Sản phẩm thực phẩm hữu cơ của chúng tôi:
+[Bột cacao nguyên chất hữu cơ 200gr](https://bbk.vn/san-pham/bot-cacao-huu-co-150g-dragon-superfoods/)
+
+[Bột cỏ lúa mì hữu cơ 150gr](https://bbk.vn/san-pham/bot-co-lua-mi-huu-co-150g-dragon-superfoods/)
